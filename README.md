@@ -6,3 +6,4 @@
 </span>
 
 
+- 💼 [LinkedIn](https://www.linkedin.com/in/hamzah-drawsheh-314966288)
